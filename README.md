@@ -1,9 +1,9 @@
 # Gabriela-Byte
 
--Coraline💙💜
--BLACKPINK🖤❤️
--Chico Buarque🎹
--Leitora📚
-![](https://tenor.com/pt-BR/view/blackpink-gif-20151445).
+- Coraline💙💜
+- BLACKPINK🖤❤️
+- Chico Buarque🎹
+- Leitora📚
+![](https://media1.tenor.com/m/Cv1oerT92M4AAAAd/blackpink.gif)
 
 
